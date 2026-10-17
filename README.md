@@ -8,5 +8,8 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 Pelaksanaan INTRIVIA ini menjadi saran bagi saya untuk mengenal lebih dalam mengenai lingkungan di Departemen Teknik Informatika.
 
-## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
+## Kesan Pesan Cluster 16 Sejauh Ini 
 Semoga Cluster 16 bisa sukses bareng.
+
+## Harapan Kuliah 
+Saya berharap bisa menjadi yang terbaik di Universitas Brawijaya.
